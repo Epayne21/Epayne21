@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Epayne21
+- 👋 Hi, I’m Eddy Payne
 - 👀 I’m interested in ... Video games, My dogs, my soon to be born child, reading, hunting, and fishing.
 - 🌱 I’m currently learning ... Coding/Web development 
 - 📫 How to reach me ... eddypayne5@gmail.com
